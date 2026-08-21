@@ -1,1 +1,1 @@
-# tuncbey-yap--gayr-menkul.github.io
+# tuncbey-yapi-gayrimenkul.github.io
